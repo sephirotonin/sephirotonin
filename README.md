@@ -3,7 +3,6 @@
 - 🌱 I’m currently studying cyber security
 - 💞️ I’m looking to collaborate on fun projects that remind one of older internet forums
 - 📫 How to reach me rayan_ayran on discord
-- 😄 Pronouns: he/him
 - ⚡ Fun fact: bagheera kiplingi is the only known spider which eats mostly vegetarian! 
 
 <!---
