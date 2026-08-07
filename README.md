@@ -2,7 +2,6 @@
 - 👀 I’m interested in music, video games, anime, classic literature and giant robots :)
 - 🌱 I’m currently studying cyber security
 - 💞️ I’m looking to collaborate on fun projects that remind one of older internet forums
-- 📫 How to reach me rayan_ayran on discord
 - ⚡ Fun fact: bagheera kiplingi is the only known spider which eats mostly vegetarian! 
 
 <!---
